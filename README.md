@@ -1,1 +1,0 @@
-# event.anime-stars.com
